@@ -1,1 +1,1 @@
-no bio
+19, kickboxer, martial arts enjoyer.
